@@ -1,1 +1,1 @@
-# rsschool-cv
+https://GITHUB-Nikita-training.github.io/rsschool-cv/cv
